@@ -1,2 +1,2 @@
 # helo-world
-mau belajar
+nama saya debi kusniawati
